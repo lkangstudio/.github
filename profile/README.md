@@ -6,7 +6,7 @@ More coming soon.
 
 ## Quick Links
 
-Website - https://lkang.au
+Website - https://studio.lkang.au
 
 Support - [mail@linus.id.au](mailto://mail@linus.id.au)
 
